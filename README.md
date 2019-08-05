@@ -1,7 +1,6 @@
 # My-port
-## smaller
-### smallest
-งานสีน้ำ ชิ้นแรก เริ่มจากสิ่งของก่อน
+## งานสีน้ำ
+เริ่มจากสิ่งของ
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0221.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0222.JPG)
 จากสิ่งของผมก้ลองลงสีนกดุ
