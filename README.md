@@ -5,6 +5,7 @@
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0222.JPG)
 ### หลังจากนั้นก้มาเป็นสัตว์
 ![alt text](https://github.com/BoonwarootRamchuen/Bird/blob/master/65181553_1058237487720893_5866078895656140800_n.jpg)
+## หลังจากนั้น็ลองวาดอนาโตมี่(Anatomy)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0215.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0217.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0223.JPG)
