@@ -6,6 +6,7 @@
 ### หลังจากนั้นก็มาเป็นสัตว์
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/65181553_1058237487720893_5866078895656140800_n.jpg)
 ## หลังจากนั้นลองวาดอนาโตมี่(Anatomy)
+### ด้วยสีไม้
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0215.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0217.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0223.JPG)
