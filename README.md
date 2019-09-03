@@ -18,7 +18,6 @@
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0231.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0232.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0233.JPG)
-![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0234.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/draw%20thanos%202%20.jpg)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/skull%20.jpg)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/vemon.jpg)
