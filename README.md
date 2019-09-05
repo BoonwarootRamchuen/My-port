@@ -25,5 +25,5 @@
 # งานประกวด
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/%E0%B8%87%E0%B8%B2%E0%B8%99%E0%B8%9B%E0%B8%A3%E0%B8%B0%E0%B8%81%E0%B8%A7%E0%B8%94.jpg)
 # ผลงานประกวด
-## งานชิ้นนี้เกิดมาจากพวกเราสามคนได้แก่ นายอาทิตย์ ผลทัต นายธาวิน ไพยะแสน และผม
+## งานชิ้นนี้เกิดมาจากพวกเราสามคนได้แก่ นายอาทิตย์ ผลทัต นายธาวิน ไพยะแสน และผม สุดท้ายเราก็ได้ที่ 6 จาก 9
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/%E0%B8%99%E0%B9%89%E0%B8%AD%E0%B8%87%E0%B8%99%E0%B8%B2%E0%B8%84%E0%B8%B2%20n.jpg)
