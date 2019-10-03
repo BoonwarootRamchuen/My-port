@@ -13,6 +13,7 @@
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0226.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0234.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0230.JPG)
+## หลังจากนั้นก็ลองมาวาดสัตว์ดู
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0229.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0228.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0231.JPG)
