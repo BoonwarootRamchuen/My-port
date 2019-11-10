@@ -3,8 +3,9 @@
 ### เริ่มจากสิ่งของ
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0221.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0222.JPG)
-### หลังจากนั้นก็มาเป็นสัตว์
-![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/65181553_1058237487720893_5866078895656140800_n.jpg)
+## และนี้คืองานชิ้นแรกๆของผม
+![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0232.JPG)
+![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0233.JPG)
 ## หลังจากนั้นลองวาดอนาโตมี่(Anatomy)
 ### ด้วยสีไม้
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0215.JPG)
@@ -14,12 +15,10 @@
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0234.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0230.JPG)
 ## หลังจากนั้นก็ลองมาวาดสัตว์ดู
+![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/65181553_1058237487720893_5866078895656140800_n.jpg)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0229.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0228.JPG)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0231.JPG)
-## และนี้คืองานชิ้นแรกๆของผม
-![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0232.JPG)
-![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/DSC_0233.JPG)
 # งานภาพดิจิตอล ที่มือสมัครเล่นอย่างผมวาดไงละ!!
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/draw%20thanos%202%20.jpg)
 ![alt text](https://github.com/BoonwarootRamchuen/My-port/blob/master/images/skull%20.jpg)
